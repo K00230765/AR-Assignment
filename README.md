@@ -1,5 +1,6 @@
 AR Assignment
 K00230765 – Aaron Boyd
+
 The theme I choose for the AR Assignment was based on a dragon/mystical theme. I made a poster, which was the target, in illustrator. 
 I decided to use a green egg which I downloaded from google images which I felt looked most like a dragon egg. I then added some 
 colours around it and messed around until I could find colours that would best suit the egg colour. 
